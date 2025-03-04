@@ -1,3 +1,11 @@
+This website plus 1 year free hosted
+
+No source code - only hosted for 1 years for free and you running it - full owenership - with free updates for 6 months for future features - souce code can be bought separately
+
+https://redditorshop.com/products/seller-keys-and-file-website
+
+
+
 
 # Digital Store Platform
 
